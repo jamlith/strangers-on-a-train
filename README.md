@@ -1,0 +1,2 @@
+# strangers-on-a-train
+A social crutch, lending a helping hand when you find yourself unable to bring yourself ro engage people that you had not only never met, but would most likely never see again.  Follow the suggestions the app will have tailored to you. and slowly, but surely you will be propositioning strangers from all walks of life to audition as the missing puzzle peice for your evil master plan.  Your loved ones will have been murdered in what should be a generously anonymous way in no time flat!
